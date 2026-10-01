@@ -1,0 +1,1 @@
+Hello everyone(professor), I am a first-year student in CS-135. Some thing about me are; I have a fat husky who I consider my son, I like to work out, I have a brother who is a CS major, and I just bought a new car!
